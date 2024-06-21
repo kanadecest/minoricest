@@ -1,1 +1,3 @@
-# minoricest
+# kanadecest
+![Untitled568_20240621150213](https://github.com/kanadecest/minoricest/assets/151749477/81aba743-729e-4aaa-b6f2-22ffcb809410)
+im the freak off pjsktwt iykyk...
